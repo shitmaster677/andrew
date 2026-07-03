@@ -1,3 +1,5 @@
+i literally ont know how to show this on my profile im so sorry i didnt think this would be so hard
+
 <img width="498" height="281" alt="6839ceb1ffef19aa1ad45652a0ccbc22" src="https://github.com/user-attachments/assets/142783be-192d-4d9b-b425-964deb65f084" />
 
 
